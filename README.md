@@ -1,2 +1,2 @@
 # ayymd
-pcwizzy is gay
+kirb is gay
