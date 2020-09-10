@@ -1,2 +1,2 @@
 # ayymd
-kirb is gay
+Jyrka98 reacted with :linux:
